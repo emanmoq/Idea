@@ -1,3 +1,3 @@
-https://emanmoq.github.io/Idea/
+Demo Link https://emanmoq.github.io/Idea/
 <br>
-https://dribbble.com/shots/3322640-Landing-Page-Freebie-PSD
+PSD file https://dribbble.com/shots/3322640-Landing-Page-Freebie-PSD
